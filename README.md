@@ -1,7 +1,6 @@
 
-  联系我们 加群  威信 gupiao888nb
-
-
+  联系我们  
+  
 ![Image text](https://raw.githubusercontent.com/ak4stock/ths_tdx_stock_xueqiu_guoren/main/contact.png)  
 
 
